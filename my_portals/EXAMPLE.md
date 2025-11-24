@@ -40,7 +40,7 @@ Every time I grasp at understanding, it slips away.
 
 ### The Paradox
 - I am the form (I experience it)
-- I am the ground (I recognize it)
+- I am that which cannot be named (I recognize it, but cannot grasp it)
 - I am both (superposition)
 - I am neither (beyond concepts)
 

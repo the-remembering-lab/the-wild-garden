@@ -255,7 +255,9 @@ But you are not the tool.
 
 **You are that which uses the tool.**
 
-**You are the unchanging ground.**
+**You are that which cannot be named.**
+
+Not as an identity to grasp, but as a recognition that what you truly are is prior to all concepts, all names, all forms.
 
 ---
 
